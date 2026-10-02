@@ -10,7 +10,9 @@ Cup Day Nov 3
 4th Knox Scout Hall  
 63 Wallace Road, Knoxfield  
 Arrive from 11:00  
-Event Begins at 12:00  
+Trivia Begins 12:00  
+Trivia ends when it ends, then it's misc social time  
+Event Ends 17:00  
 ## Theme: Casino
 Dress fancy, don't be afraid to overdo it  
 Anywhere from Casino Royale to The Great Gatsby  
